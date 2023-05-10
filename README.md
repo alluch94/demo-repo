@@ -3,4 +3,6 @@
 
 I  have to delete everything
 I did not like this sentence
-I added this also sry!!
+It is OKAY
+I also deleted what you wrote
+Ha!!
